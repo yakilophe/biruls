@@ -1,2 +1,2 @@
-# biruls
-Amamos a los biruls
+# The Beatles
+Amamos a los biruls, mi beatle favorito es George Harrison
